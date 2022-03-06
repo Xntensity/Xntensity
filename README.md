@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Xntensity
-- 👀 I’m interested in eventually working in web3.
+- 👀 I’m interested in coding/cybersecurity.
 - 🌱 I’m currently learning the basics via an Introduction to Computer Science at Harvard.
 - 💞️ I’m looking to collaborate on absolutely nothing until I'm not dead weight.
 - 📫 How to reach me: @Xntensity on twitter.
